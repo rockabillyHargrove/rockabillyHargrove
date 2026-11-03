@@ -20,6 +20,8 @@
 
 *i'm not good with comforting. it's nothing with you, it's me. if you vent to me, don't expect much LOL.*
 
+*i'm very open to interacting with other st kins!! if you see me, say hi!*
+
 　
 <img width="1000" height="40" alt="tumblr_42baa49786d6e234ba2f53b3c9a02878_9d0cc997_1280" src="https://github.com/user-attachments/assets/436ceb74-cbee-4834-b22d-9e947a2a57e0" />
 
